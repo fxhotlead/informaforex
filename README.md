@@ -1,0 +1,2 @@
+# informaforex
+GitHub Pages
